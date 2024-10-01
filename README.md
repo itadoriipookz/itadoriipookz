@@ -5,6 +5,7 @@ im open to making new friends so pls int.... i can be awkward at making conversa
 ### ABOUT ME !! >_<
 - you can call me Inasa or Itadori!
 - im 15 y/o !! im a transmacs so he/him preferred :3
+- fyi i have symptoms of BPD so pls iwc if you dont like it t_t
 - i love sleeping so that could explain half of reason why im always offtab or afk
 - i have the most gorgeous [partner](https://github.com/SilentHumanity) !! (ilysmmmm,cai><)
 
